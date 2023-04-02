@@ -2,4 +2,4 @@
 # Do We allow using it for free? Yes we are allowing. Do we allow earn on it money? No we do not allowing. Knowlegde is free.
 # You find the mistake - write to us.
 # You want to join us? Sorry we choose who deserve to join us.
-# We 2BE we are Free forlk of Net. Educate Yourself. 
+# We are 2BE, we are Free group of People of Net. Educate Yourself. 
